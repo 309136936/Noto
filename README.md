@@ -1,2 +1,2 @@
 # Noto
-Akways a freshman
+Always a freshman
